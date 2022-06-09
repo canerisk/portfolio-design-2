@@ -1,1 +1,1 @@
-# raqzid-about-site
+# xpnzz-personel-site-news
